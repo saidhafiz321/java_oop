@@ -1,3 +1,3 @@
 # java_oop
 
-lanjutannya akan 
+lanjutannya akan saya
